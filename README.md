@@ -12,7 +12,7 @@ Phone Number: +60 12-6371496
 
 Chocolate flavours: Original (Available) Strawberry (Available) Mint (Available)
 
-Add on bits: Hazelnut (Available) Pistachio (Available) Peanut (Available) Strawberry (Available) Blueberry (Available)
+Add on bits : Hazelnut (Available) Pistachio (Available) Peanut (Available) Strawberry (Available) Blueberry (Available) with add more RM5
 
 Sizes & Pricing: Small box (4 piece) RM30 (RM35 with bits) Medium box (8 piece) - RM40 (RM45 with bits) Large box (12 piece)  - RM50 (RM55 with bits)
 
