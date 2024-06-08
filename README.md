@@ -4,7 +4,7 @@ Baker: Ms Kelly (Exquisite 3-star Michelin star chocolate expert)
 
 Time open: Everyday from 10am to 6pm (Except Monday)
 
-Website Link: ([https://chocolate-cakes-kijjl6g.gamma.site/](https://premium-chocolate-world-fnqk1el.gamma.site/))
+Website Link: (https://premium-chocolate-world-fnqk1el.gamma.site/)
 
 Location: Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam State/province/area - Selangor Zip code - 42600
 
@@ -28,7 +28,7 @@ Tax: 10% Government tax
 
 Bits: Bits are sprinkle around each chocolate (except the chocolate paper)
 
-Others: Order can be made via phone or coming to place. You should make order before one week receive chocolate
+Others: Order can be made via phone or coming to place. You should make order before one week of receiving chocolate
 
 Other products:Mini Chocolate fork (RM10 for 2)
 
